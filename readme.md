@@ -1,4 +1,5 @@
 
+![ChatGPT Image Jun 4, 2025, 01_31_23 PM](https://github.com/user-attachments/assets/7eb9ea0e-9b19-4fdf-8430-6bfc70fc05b2)
 
 ## نسخه فارسی 🇮🇷
 
